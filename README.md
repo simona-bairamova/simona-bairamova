@@ -1,2 +1,2 @@
-# simonaBairamova
-Graphic Design Portfolio
+# Simona Bairamova
+## Graphic Design Portfolio
